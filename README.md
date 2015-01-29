@@ -8,4 +8,4 @@ Prizes will be awarded in the following categories:
 •	Judges’ Favorite
 •	People’s Choice	Soups/Stews/Curries:
 
-I'll post the recipe here the day of the competiion :)
+I'll post the recipe here the day of the competition :)
